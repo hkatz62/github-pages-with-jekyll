@@ -1,3 +1,3 @@
 # Welcome to my blog
 
-I'm glad **you** are here. I plan to talk about traveling to and living in Argentina
+I'm glad **you** are here! I plan to talk about traveling to and living in Argentina
